@@ -1,0 +1,1 @@
+quiero trabajar en palantir
